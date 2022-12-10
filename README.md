@@ -12,7 +12,8 @@ used animation in first screen
 
 ![WhatsApp Image 2022-12-11 at 12 51 53 AM](https://user-images.githubusercontent.com/88463009/206878408-21c3ff4e-ebf9-4691-bb84-4a68857b9c58.jpeg)
 
-![WhatsApp Image 2022-12-11 at 12 51 53 AM](https://user-images.githubusercontent.com/88463009/206878418-94175eb2-779e-4ee3-b71e-aa14edecba13.jpeg)
+![WhatsApp Image 2022-12-11 at 12 51 56 AM](https://user-images.githubusercontent.com/88463009/206878549-ea370904-08a0-446a-9ddd-348b441a8181.jpeg)
+
 
 ![WhatsApp Image 2022-12-11 at 12 51 57 AM](https://user-images.githubusercontent.com/88463009/206878430-88628488-3444-4428-bf08-2e34d2630600.jpeg)
 
